@@ -1,0 +1,2 @@
+# Casio-CTK-2550-PPK-61-Key-Premium-Keyboard
+The Casio CTK2550 premium package includes keyboard, stand, headphones, and power supply. A portable keyboard featuring 61 full-size keys, 400 high-quality Tones, and 100 built-in Rhythms. Connect to your iOS or Android device to use the free Chordata Play app or even transfer your own downloadable MIDI files to the CTK-2550’s internal memory, and use the built-in lesson system to learn how to play your favorite songs https://kokania.com/product-category/electronics/.
